@@ -1,0 +1,1 @@
+# each-text-anime-control
